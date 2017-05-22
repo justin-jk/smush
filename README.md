@@ -1,0 +1,2 @@
+# smush
+smash ripoff
